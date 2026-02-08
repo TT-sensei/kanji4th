@@ -1,1 +1,0 @@
-# kanji4th
